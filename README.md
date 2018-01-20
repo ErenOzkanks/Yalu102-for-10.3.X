@@ -7,7 +7,7 @@ credits to
 Eren Özkan
 Siguza 
 xpreeks
-stickron
+sticktron
 qwertyoruiop
 
 Design By Eren Özkan 
